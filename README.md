@@ -1,3 +1,4 @@
 # delta-demo
-this is a demo for git and Github class. 
-Hello Gyes
+
+Endr Dhanush k war k0 prahar lo tum bumm hu aur bum ho 
+onthign is immposibal you are you are you are 
